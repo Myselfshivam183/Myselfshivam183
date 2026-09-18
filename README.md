@@ -1,4 +1,4 @@
-👋 Hey, I'm Technical Ideas
+👋 Hey, I'm Shivam Chaurasya.
 
 💻 B.Tech IT Student | Aspiring Full-Stack Developer
 
